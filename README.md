@@ -1,1 +1,0 @@
-# bobur_uj.github.io
